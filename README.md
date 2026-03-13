@@ -8,4 +8,4 @@
 <p align="center">       𝐬𝐢𝐠𝐧 𝐚𝐭𝐚 ♡  <img src="https://pixels.crd.co/assets/images/gallery06/74a3569b.gif?v=29416114">  <img src="https://pixels.crd.co/assets/images/gallery06/d0003fef.gif?v=29416114">
 
 <p align="center">       i dont do "cuddles" especially if u're under 18 but u can sit with me if u want to. still i would pref if u're above 18.
-  other than that anymore can int with me c:
+<p align="center">       other than that anyone can int with me c:
