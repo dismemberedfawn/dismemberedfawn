@@ -1,7 +1,8 @@
 <p align="center">
   <img src="https://cdn.discordapp.com/attachments/1393300440661360751/1482053388748329011/Senza_titolo_96_20260313173057.png?ex=69b58d47&is=69b43bc7&hm=75601cd1795ff737c1731d916408b11b12391fbc7d462465b268299cb9faf2e0&">
 <p align="center">
-<img src="https://i.pinimg.com/originals/fe/49/7d/fe497d3ebfd509b9506991a34110bae8.gif">
+![fe497d3ebfd509b9506991a34110bae8](https://github.com/user-attachments/assets/63bc3b70-f639-419a-814e-990a3fcc3306)
+
   <p align="center">
   <img src="https://cdn.discordapp.com/attachments/1393300440661360751/1482053388748329011/Senza_titolo_96_20260313173057.png?ex=69b58d47&is=69b43bc7&hm=75601cd1795ff737c1731d916408b11b12391fbc7d462465b268299cb9faf2e0&">
   <p align="center"> 𝑠𝑖𝑔𝑛 𝑎𝑡𝑎 ♡ 
