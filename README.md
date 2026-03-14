@@ -8,5 +8,6 @@
 <p align="center">       𝐬𝐢𝐠𝐧 𝐚𝐭𝐚 ♡  <img src="https://pixels.crd.co/assets/images/gallery06/74a3569b.gif?v=29416114">  <img src="https://pixels.crd.co/assets/images/gallery06/d0003fef.gif?v=29416114">
 
 
-<p align="center">       <img src="<a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/blinkiesCafe-badge.gif' alt='blinkies.cafe | make your own blinkies!'></a>"
+<p align="center">       <img src="https://blinkies.cafe/b/blinkiesCafe-EN.gif"
+
 <p align="center">       
