@@ -8,4 +8,4 @@
 <p align="center">       𝐬𝐢𝐠𝐧 𝐚𝐭𝐚 ♡    <img src="https://pixels.crd.co/assets/images/gallery06/74a3569b.gif?v=29416114">  <img src="https://pixels.crd.co/assets/images/gallery06/d0003fef.gif?v=29416114">
 
 
-<p align="center">       <img src="https://api.visitorbadge.io/api/daily?path=https%3A%2F%2Fgithub.com%2Fdismemberedfawn&label=bodies%20%F0%90%82%AF&labelColor=%23ba68c8&countColor=%23d9e3f0">
+<p align="center">       <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fdismemberedfawn&label=bodies%20%F0%90%82%AF&labelColor=%23ba68c8&countColor=%23555555&style=plastic&labelStyle=none">
